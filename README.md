@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/shadibahaa/](https://www.linkedin.com/in/shadibahaa/)
 
-- ⚡ Fun fact **I want to shift from tech!**
+- ⚡ Fun fact **I want to get hired!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
